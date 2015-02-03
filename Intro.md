@@ -1,3 +1,9 @@
+---
+layout: default
+course: ARTH201
+course_fulltitle: "Art of Ancient Egypt and the Ancient Near East"
+course_description: "Detailed introduction to the major artistic and architectural traditions of Ancient Egypt and the Ancient Near East."
+---
 Course Syllabus for "ARTH201: Art of Ancient Egypt and the Ancient Near East"
 -----------------------------------------------------------------------------
 
