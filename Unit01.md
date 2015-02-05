@@ -1,9 +1,10 @@
 ---
 layout: default
-title: "ARTH201 - Art of Ancient Egypt and the Ancient Near East"
-course: ARTH201
-course_fulltitle: "Art of Ancient Egypt and the Ancient Near East"
-course_description: "Detailed introduction to the major artistic and architectural traditions of Ancient Egypt and the Ancient Near East."
+title: "ARTH201: Art of Ancient Egypt and the Ancient Near East"
+course_description: "A detailed introduction to the major artistic and architectural traditions of Ancient Egypt and the Ancient Near East."
+next: ../Unit02
+previous: ../Intro
+bgimage: arth201.jpg
 ---
 -   **Unit 1: The Art of Ancient Egypt**  
 
