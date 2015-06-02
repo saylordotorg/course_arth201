@@ -104,3 +104,9 @@ review [ARTH101: Art Appreciation and Techniques](http://www.saylor.org/courses/
 history vocabulary, materials, and techniques. This knowledge, combined
 with the more specific vocabulary covered in this course, will be useful
 when discussing Ancient Egyptian and Near Eastern art and architecture.
+
+**Table of Contents:** You can find the course's units at the links below.
+
+- [Unit 1](https://legacy.saylor.org/arth201/Unit01/)
+- [Unit 2](https://legacy.saylor.org/arth201/Unit02/)
+- [Unit 3](https://legacy.saylor.org/arth201/Unit03/)
