@@ -118,3 +118,4 @@ when discussing Ancient Egyptian and Near Eastern art and architecture.
 - [Unit 1](https://legacy.saylor.org/arth201/Unit01/)
 - [Unit 2](https://legacy.saylor.org/arth201/Unit02/)
 - [Unit 3](https://legacy.saylor.org/arth201/Unit03/)
+- [Final Exam](http://saylordotorg.github.io/LegacyExams/ARTH/ARTH201/ARTH201-FinalExam.html), [Answers](http://saylordotorg.github.io/LegacyExams/ARTH/ARTH201/ARTH201-FinalExam-Answers.html)
