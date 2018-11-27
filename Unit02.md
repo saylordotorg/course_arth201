@@ -267,27 +267,27 @@
         “Stone statue of a man,” and “Chlorite double bowl”**
 
         Links: The British Museum’s “[Mesopotamia: Early Dynastic
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-MESOPOTAMIAEARLYDYNASTIC.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-MESOPOTAMIAEARLYDYNASTIC.pdf),”
         “[Gypsum Statue of a
-        Man](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-GYPSUMSTATUEMAN.pdf),”
+        Man](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-GYPSUMSTATUEMAN.pdf),”
         “[Stone
-        bowl](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-STONEBOWL.pdf),”
+        bowl](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-STONEBOWL.pdf),”
         “[Fired steatite cylinder
-        seal](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-FIREDSTEATITECYLINDER.pdf),”
+        seal](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-FIREDSTEATITECYLINDER.pdf),”
         “[‘Scarlet Ware’
-        jar](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-SCARLETWAREJAR.pdf),”
+        jar](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-SCARLETWAREJAR.pdf),”
         “[Stone mace
-        head](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-STONEMACEHEAD.pdf),”
+        head](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-STONEMACEHEAD.pdf),”
         “[White calcite (marble) cylinder seal with a combat
-        scene](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-WHITECALCITECYLINDERCOMBAT.pdf),”
+        scene](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-WHITECALCITECYLINDERCOMBAT.pdf),”
         “[Aragonite (shell) cylinder seal with a contest
-        scene](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-ARAGONITECYLINDERSEALCONTEST.pdf),”
+        scene](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-ARAGONITECYLINDERSEALCONTEST.pdf),”
         “[Limestone
-        plaque](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-LIMESTONEPLAQUE.pdf),”
+        plaque](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-LIMESTONEPLAQUE.pdf),”
         “[Stone statue of a
-        man](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-STONESTATUEMAN.pdf),”
+        man](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-STONESTATUEMAN.pdf),”
         and “[Chlorite double
-        bowl](http://www.saylor.org/site/wp-content/uploads/2012/01/2.2.3-CHLORITEDOUBLEBOWL.pdf)”
+        bowl](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.2.3-CHLORITEDOUBLEBOWL.pdf)”
         (PDF)  
            
          Instructions: Read these articles as an introduction to the art
@@ -350,9 +350,9 @@
 
         Links: The British Museum: Explore/Highlights’ “[The Royal
         Graves of
-        Ur](http://www.saylor.org/site/wp-content/uploads/2011/09/The-Royal-Graves-of-Ur_1.pdf)”
+        Ur](https://resources.saylor.org/archived/wp-content/uploads/2011/09/The-Royal-Graves-of-Ur_1.pdf)”
         (PDF) and “[Related Content for the Article ‘The Royal Graves of
-        Ur’](http://www.saylor.org/site/wp-content/uploads/2011/09/Related-Content-for-the-Article-%E2%80%98The-Royal-Graves-of-Ur_1.pdf)”
+        Ur’](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Related-Content-for-the-Article-%E2%80%98The-Royal-Graves-of-Ur_1.pdf)”
         (PDF)  
            
          Instructions: Please read both articles above.  
@@ -497,19 +497,19 @@
         seal of Adda,” and “Fragments of a carved stone box”**
 
         Links: The British Museum’s “[Agade/ Akkadian
-        Dynasty](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-AGADEAKKADIANDYNASTY.pdf),”
+        Dynasty](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-AGADEAKKADIANDYNASTY.pdf),”
         “[Sargon, king of Agade (about 2334-2279
-        BC)](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-SARGONKINGOFAGADE.pdf),”
+        BC)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-SARGONKINGOFAGADE.pdf),”
         “[Greenstone
-        Seal](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-GREENSTONESEAL.pdf),”
+        Seal](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-GREENSTONESEAL.pdf),”
         “[Serpentinite Cylinder
-        Seal](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-SERPENTINECYLINDERSEAL.pdf),”
+        Seal](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-SERPENTINECYLINDERSEAL.pdf),”
         “[Stone mace
-        head](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-STONEMACEHEAD.pdf),”
+        head](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-STONEMACEHEAD.pdf),”
         “[Greenstone seal of
-        Adda](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-GREENSTONESEALADDA.pdf),”
+        Adda](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-GREENSTONESEALADDA.pdf),”
         “[Fragments of a carved stone
-        box](http://www.saylor.org/site/wp-content/uploads/2012/01/2.3.1-FRAGMENTSCARVEDSTONEBOX.pdf)”
+        box](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.3.1-FRAGMENTSCARVEDSTONEBOX.pdf)”
         (PDF)   
            
          Instructions: Read these articles as an introduction to the
@@ -599,9 +599,9 @@
         Babylonian Period’”**
 
         Links: The British Museum: Explore/Highlights’ “[Old Babylonian
-        Period](http://www.saylor.org/site/wp-content/uploads/2011/09/Old-Babylonian-Period_1.pdf)”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Old-Babylonian-Period_1.pdf)”
         (PDF) and “[Related Content for the Article ‘Old Babylonian
-        Period’](http://www.saylor.org/site/wp-content/uploads/2011/09/Related-Content-for-the-Article-%E2%80%98Old-Babylonian-Period%E2%80%99_1.pdf)”
+        Period’](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Related-Content-for-the-Article-%E2%80%98Old-Babylonian-Period%E2%80%99_1.pdf)”
         (PDF)  
            
          Instructions: Please read both articles.   
@@ -636,23 +636,23 @@
         cylinder seal,” and “Limestone tripod bowl”**
 
         Links: The British Museum’s
-        “[Hittites](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-HITTITES.pdf),”
+        “[Hittites](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-HITTITES.pdf),”
         “[Gold figures of
-        deities](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-GOLDFIGURESDEITIES.pdf),”
+        deities](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-GOLDFIGURESDEITIES.pdf),”
         “[Gold figurine of a
-        god](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-GOLDFIGURINEGOD.pdf),”
+        god](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-GOLDFIGURINEGOD.pdf),”
         “[Gold
-        necklace](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-GOLDNECKLACE.pdf),”
+        necklace](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-GOLDNECKLACE.pdf),”
         “[Gold
-        ornament](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-GOLDORNAMENT.pdf),”
+        ornament](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-GOLDORNAMENT.pdf),”
         “[Haematite
-        seal](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-HAEMATITESEAL.pdf),”
+        seal](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-HAEMATITESEAL.pdf),”
         “[Ivory
-        figurine](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-IVORYFIGURINE.pdf),”
+        figurine](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-IVORYFIGURINE.pdf),”
         “[Limestone cylinder
-        seal](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-LIMESTONECYLINDERSEAL.pdf),”
+        seal](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-LIMESTONECYLINDERSEAL.pdf),”
         and “[Limestone tripod
-        bowl](http://www.saylor.org/site/wp-content/uploads/2012/01/2.5.1-LIMESTONETRIPODBOWL.pdf)”
+        bowl](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.5.1-LIMESTONETRIPODBOWL.pdf)”
         (PDF)  
            
          Instructions: Read these articles as an introduction to the
@@ -752,23 +752,23 @@
         “The Taylor Prism”**
 
         Links: The British Museum’s
-        “[Assyrians](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-ASSYRIANS.pdf),”
+        “[Assyrians](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-ASSYRIANS.pdf),”
         “[Alabaster
-        jar](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-ALABASTERJAR.pdf),”
+        jar](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-ALABASTERJAR.pdf),”
         “[Bronze head of
-        Pazuzu](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-BRONZEHEADPAZUZU.pdf),”
+        Pazuzu](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-BRONZEHEADPAZUZU.pdf),”
         “[Carnelian cylinder seal of
-        Mushezib-Ninurta](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-CARNELIANCYLINDERSEALMUSHEZIB.pdf),”
+        Mushezib-Ninurta](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-CARNELIANCYLINDERSEALMUSHEZIB.pdf),”
         “[Colossal statue of a
-        lion](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-COLOSSALSTATUELION.pdf),”
+        lion](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-COLOSSALSTATUELION.pdf),”
         “[Cuneiform tablet telling the Epic of
-        Creation](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-CUNEIFORMTABLETEPICCREATION.pdf),”
+        Creation](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-CUNEIFORMTABLETEPICCREATION.pdf),”
         “[Garnet cylinder seal showing
-        Ishtar](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-GARNETCYLINDERSEALISHTAR.pdf),”
+        Ishtar](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-GARNETCYLINDERSEALISHTAR.pdf),”
         “[The Black Obelisk of Shalmaneser
-        III](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-BLACKOBELISKSHALMANESER.pdf),”
+        III](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-BLACKOBELISKSHALMANESER.pdf),”
         and “[The Taylor
-        Prism](http://www.saylor.org/site/wp-content/uploads/2012/01/2.6.1-TAYLORPRISM.pdf)”
+        Prism](https://resources.saylor.org/archived/wp-content/uploads/2012/01/2.6.1-TAYLORPRISM.pdf)”
         (PDF)  
            
          Instructions: Read the above articles as an introduction to the
@@ -803,7 +803,7 @@
 
         Link: The British Museum: Explore: Related Content for the
         Gallery [“Room 7-8: Assyria:
-        Nimrud”](http://www.saylor.org/site/wp-content/uploads/2011/09/Related-Highlight-Objects_1.pdf)
+        Nimrud”](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Related-Highlight-Objects_1.pdf)
         (PDF)  
            
          Instructions: Please read the article.  
@@ -898,7 +898,7 @@
 
         Link: The British Museum: Explore/Highlight’s “[Colossal Winged
         Bull  from  the Palace of Sargon
-        II](http://www.saylor.org/site/wp-content/uploads/2011/09/Colossal-winged-bull-from-the-Palace-of-Sargon-II_1.pdf)”
+        II](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Colossal-winged-bull-from-the-Palace-of-Sargon-II_1.pdf)”
         (PDF)  
            
          Instructions: Please read this page about a lamassu from
@@ -930,7 +930,7 @@
 
         Link: The British Museum: Explore: Related Content for the
         Gallery “[Room 9: Assyria:
-        Nineveh](http://www.saylor.org/site/wp-content/uploads/2011/09/Related-Highlight-Objects_11.pdf)"
+        Nineveh](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Related-Highlight-Objects_11.pdf)"
         (PDF)  
            
          Instructions: Please read above text.  

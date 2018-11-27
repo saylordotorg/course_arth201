@@ -125,9 +125,9 @@
         Egypt” and “Picture List”**
 
         Link: The British Museum’s “[Gods and Goddesses of Ancient
-        Egypt](http://www.saylor.org/site/wp-content/uploads/2012/01/1.1.4-GODS.pdf)”
+        Egypt](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.1.4-GODS.pdf)”
         (PDF) and “[Picture
-        List](http://www.saylor.org/site/wp-content/uploads/2012/01/1.1.4-PICTURE.pdf)”
+        List](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.1.4-PICTURE.pdf)”
         (PDF)  
            
          Instructions: Read the first page as an introduction to Ancient
@@ -206,9 +206,9 @@
 
         Link: Jacques Kinnaer’s The Ancient Egypt Site: “[The Early
         Dynastic
-        Period](http://www.saylor.org/site/wp-content/uploads/2011/09/Early-Dynastic-Period_1.pdf)”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Early-Dynastic-Period_1.pdf)”
         and "[Narmer
-        Palette](http://www.saylor.org/site/wp-content/uploads/2011/09/The-Narmer-Palette_1.pdf)" (PDF)  
+        Palette](https://resources.saylor.org/archived/wp-content/uploads/2011/09/The-Narmer-Palette_1.pdf)" (PDF)  
            
          Instructions: Please note that this reading will cover the
         material you need to know for subunits 1.2.1 and 1.2.2. Please
@@ -280,7 +280,7 @@
 
         Link: The British Museum: Explore/Online Tours’s “[Egypt in the
         Old
-        Kingdom](http://www.saylor.org/site/wp-content/uploads/2012/01/1.3-OLDKINGDOM.pdf)”
+        Kingdom](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.3-OLDKINGDOM.pdf)”
         (PDF)  
            
          Instructions: Please read this text in its entirety.   
@@ -312,7 +312,7 @@
          Instructions: While reading though the following pages, please
         open the resource below, The Saylor Foundation’s “[ARTH201:
         Image Guide for Subunit
-        1.3.2](http://www.saylor.org/site/wp-content/uploads/2012/01/ARTH201-ImageGuideforSubunit1.3.2-FINAL.pdf)”
+        1.3.2](https://resources.saylor.org/archived/wp-content/uploads/2012/01/ARTH201-ImageGuideforSubunit1.3.2-FINAL.pdf)”
         in a separate tab or window to look at the images associated
         with these readings.  First click on the link “A to Z,” then
         click on “M” on the alphabetical list at the top of the page,
@@ -430,7 +430,7 @@
 
         Link: Jacques Kinnaer’s [The Ancient Egypt Site: “The First
         Intermediate
-        Period”](http://www.saylor.org/site/wp-content/uploads/2011/09/1st-Intermediate-Period_1.pdf) (PDF)  
+        Period”](https://resources.saylor.org/archived/wp-content/uploads/2011/09/1st-Intermediate-Period_1.pdf) (PDF)  
            
          Instructions: Read this text as an introduction to the period
         between the Old and Middle Kingdoms. For HTML: On the sidebar
@@ -445,9 +445,9 @@
         “Limestone Stela of Tjetji”**
 
         Links: The British Museum’s “[Stela of
-        Inheretnakht](http://www.saylor.org/site/wp-content/uploads/2011/09/Stela-of-Inheretnakht_1.pdf)”
+        Inheretnakht](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Stela-of-Inheretnakht_1.pdf)”
         (PDF) and “[Limestone Stela of
-        Tjetji](http://www.saylor.org/site/wp-content/uploads/2011/09/Limestone-stela-of-Tjetji_1.pdf)”
+        Tjetji](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Limestone-stela-of-Tjetji_1.pdf)”
         (PDF)  
            
          Instructions: Please read these two webpages about examples of
@@ -502,13 +502,13 @@
 
         Links: The British Museum’s “[Egypt in the Middle Kingdom
         (2030–1640
-        B.C.)](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-MIDDLEKINGDOM.pdf),”
+        B.C.)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-MIDDLEKINGDOM.pdf),”
         “[Quartzite statue of Senebtyfy, called
-        Ptahemsaf](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-QUARTZ.pdf),”
+        Ptahemsaf](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-QUARTZ.pdf),”
         “[Model showing brewing, baking and
-        butchery](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-MODELBREWING.pdf),”
+        butchery](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-MODELBREWING.pdf),”
         and “[Wooden model of a granary with
-        figure](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-WOODENMODEL.pdf)”
+        figure](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-WOODENMODEL.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -537,19 +537,19 @@
 
         Links: The British Museum’s “[Wooden model of a man ploughing
         with
-        oxen](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-MANPLOUGHING.pdf),”
+        oxen](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-MANPLOUGHING.pdf),”
         “[Painted wooden model
-        boat](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-PAINTEDWOODENBOAT.pdf),”
+        boat](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-PAINTEDWOODENBOAT.pdf),”
         “[Model of a female
-        servant](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-MODELFEMALESERVANT.pdf),”
+        servant](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-MODELFEMALESERVANT.pdf),”
         “[Inner coffin of
-        Gua](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-INNERCOFFINGUA.pdf),”
+        Gua](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-INNERCOFFINGUA.pdf),”
         “[Outer coffin of
-        Gua](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-OUTERCOFFINGUA.pdf),”
+        Gua](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-OUTERCOFFINGUA.pdf),”
         “[Scarab
-        pendant](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-SCARABPENDANT.pdf),”
+        pendant](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-SCARABPENDANT.pdf),”
         and “[Gold shell amulet in with the name of
-        Senwosret I](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-GOLDSHELLAMULETSENWOSRETL.pdf)”
+        Senwosret I](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-GOLDSHELLAMULETSENWOSRETL.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -582,15 +582,15 @@
         “Fragment of painted limestone relief from the tomb of Kemsit”**
 
         Links: The British Museum’s “[Early shabti figure in a model
-        coffin](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-EARLYSHABTIFIGURE.pdf),”
+        coffin](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-EARLYSHABTIFIGURE.pdf),”
         “[Limestone statue of the steward
-        Mery](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-LIMESTONESTATUTEMARY.pdf),”
+        Mery](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-LIMESTONESTATUTEMARY.pdf),”
         “[Quartzite statue of
-        Ankhrekhu](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-QUARTZITESTATUEANKREKHU.pdf),”
+        Ankhrekhu](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-QUARTZITESTATUEANKREKHU.pdf),”
         “[Granite head of
-        Amenemhat III](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-GRANITEHEADOFAMENEMHAT.pdf),”
+        Amenemhat III](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-GRANITEHEADOFAMENEMHAT.pdf),”
         and “[Fragment of painted limestone relief from the tomb of
-        Kemsit](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-FRAGMENTPAINTEDLIMESTONE.pdf)”
+        Kemsit](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-FRAGMENTPAINTEDLIMESTONE.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -645,11 +645,11 @@
 
         Links: The British Museum: Explore/Highlights’ “[Model from the
         Tomb of Nebhepetre
-        Mentuhotep II](http://www.saylor.org/site/wp-content/uploads/2011/09/Model-from-the-tombe-of-Nebhepetre-Mentuhotepll_1.pdf),”
+        Mentuhotep II](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Model-from-the-tombe-of-Nebhepetre-Mentuhotepll_1.pdf),”
         “[Fragment of Painted Limestone Relief from the Tomb of
-        Kemsit](http://www.saylor.org/site/wp-content/uploads/2011/09/Fragment-of-painted-limestone-relief-from-the-tomb-of-Kemsit_1.pdf),”
+        Kemsit](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Fragment-of-painted-limestone-relief-from-the-tomb-of-Kemsit_1.pdf),”
         and “[Limestone Relief Showing Mentuhotep II Embraced by
-        Montu](http://www.saylor.org/site/wp-content/uploads/2011/09/Limestone-relief-showing-Mentuhotepll-embraced-by-Montu_1.pdf)”
+        Montu](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Limestone-relief-showing-Mentuhotepll-embraced-by-Montu_1.pdf)”
         (All PDF)  
            
          Instructions: Read each webpage about fragments of three
@@ -681,7 +681,7 @@
 
         Link: Jacques Kinnaer’s The Ancient Egypt Site: [“The Twelfth
         Dynasty,” “El-Lisht,” “Hawara,” and
-        “Illahun”](http://www.saylor.org/site/wp-content/uploads/2011/09/12th-Dynasty-El-Lisht-Hawara-Illahun_1.pdf) (PDF)  
+        “Illahun”](https://resources.saylor.org/archived/wp-content/uploads/2011/09/12th-Dynasty-El-Lisht-Hawara-Illahun_1.pdf) (PDF)  
            
          Instructions: Please read the above text. For HTML: Please
         click on the above link.  On the sidebar, click on the links to
@@ -711,17 +711,17 @@
         and “Limestone Shabti Figure of King Ahmose”**
 
         Links: The British Museum’s “[Ancient Egypt: 2nd Intermediate
-        Period](http://www.saylor.org/site/wp-content/uploads/2011/09/Ancient-Egypt-2nd-Intermediate-Period_1.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Ancient-Egypt-2nd-Intermediate-Period_1.pdf),”
         “[Red Granite Statue of
-        Sobekemzafl](http://www.saylor.org/site/wp-content/uploads/2012/11/Red-granite-statue-of-Sobekemzaf.pdf),”
+        Sobekemzafl](https://resources.saylor.org/archived/wp-content/uploads/2012/11/Red-granite-statue-of-Sobekemzaf.pdf),”
         “[Coffin of King Nubkheperra
-        Intef](http://www.saylor.org/site/wp-content/uploads/2011/09/Coffin-of-King-Nubkheperra-Intef_1.pdf),”
+        Intef](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Coffin-of-King-Nubkheperra-Intef_1.pdf),”
         “[Green Jasper Heart Scarab of King
-        Sobekemsaf](http://www.saylor.org/site/wp-content/uploads/2011/09/Green-jasper-heart-scarab-of-King-Sobekemsaf_1.pdf),”
+        Sobekemsaf](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Green-jasper-heart-scarab-of-King-Sobekemsaf_1.pdf),”
         “[Limestone Shabti of the Official Escort
-        Renseneb](http://www.saylor.org/site/wp-content/uploads/2011/09/Limestone-shabti-of-the-official-escort-Renseneb_1.pdf),”
+        Renseneb](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Limestone-shabti-of-the-official-escort-Renseneb_1.pdf),”
         and “[Limestone Shabti Figure of King
-        Ahmose](http://www.saylor.org/site/wp-content/uploads/2011/09/Limestone-shabti-figure-of-King-Ahmose_1.pdf)”
+        Ahmose](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Limestone-shabti-figure-of-King-Ahmose_1.pdf)”
         (All PDF)  
            
          Instructions: Please read the above webpages about the Second
@@ -763,12 +763,12 @@
         before the gods of Memphis,” and “Magic bricks of Henutmehyt”**
 
         Links: The British Museum’s “[Ancient Egypt: The New
-        Kingdom](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-ANCIENTEGYPTNEWKINGDOM.pdf),”
+        Kingdom](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-ANCIENTEGYPTNEWKINGDOM.pdf),”
         “[Scene from the Great Harris Papyrus: Ramesses III before the
         gods of
-        Memphis](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-SCENEFROMGREATHARRIS.pdf),”
+        Memphis](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-SCENEFROMGREATHARRIS.pdf),”
         and “[Magic bricks of
-        Henutmehyt](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-MAGICBRICKSOFHENUTMEHYT.pdf)”
+        Henutmehyt](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-MAGICBRICKSOFHENUTMEHYT.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -793,15 +793,15 @@
         headrest of Qeniherkhepeshef”**
 
         Links: The British Museum’s “[Canopic chest and jars of
-        Henutmehyt](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-CANOPICCHESTJARS.pdf),”
+        Henutmehyt](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-CANOPICCHESTJARS.pdf),”
         “[Mummy board of
-        Henutmehyt](http://www.saylor.org/site/wp-content/uploads/2012/01/1.5.1-MUMMYBOARD.pdf),”
+        Henutmehyt](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.5.1-MUMMYBOARD.pdf),”
         “[Inner coffin of
-        Henutmehyt](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-INNERCOFFINHENUTMEHYT.pdf),”
+        Henutmehyt](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-INNERCOFFINHENUTMEHYT.pdf),”
         “[Shabti of
-        Qeniherkhepeshef](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-SHABTIOFQENIHERK.pdf),”
+        Qeniherkhepeshef](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-SHABTIOFQENIHERK.pdf),”
         and “[Limestone headrest of
-        Qeniherkhepeshef](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-LIMESTONEHEADRESTQENI.pdf)”
+        Qeniherkhepeshef](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-LIMESTONEHEADRESTQENI.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -830,14 +830,14 @@
         the tomb-chapel of Nebamun”**
 
         Links: The British Museum’s “[Head of a figure of the cow of
-        Hathor](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-HEADOFFIGUREOFCOWOFHATHOR.pdf),”
+        Hathor](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-HEADOFFIGUREOFCOWOFHATHOR.pdf),”
         “[Black granite statues of
-        Sekhmet](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-BLACKGRANITESEKHMET.pdf),”
+        Sekhmet](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-BLACKGRANITESEKHMET.pdf),”
         “[Block statue of
-        Sennefer](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-BLOCKSTATUESENNEFER.pdf),”
+        Sennefer](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-BLOCKSTATUESENNEFER.pdf),”
         and “[Offerings for Nebamun, fragment of a scene from the
         tomb-chapel of
-        Nebamun](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.1-OFFERINGSFORNEBAMUN.pdf)”
+        Nebamun](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.1-OFFERINGSFORNEBAMUN.pdf)”
         (PDF)  
            
          Instructions: Please read the above articles as an introduction
@@ -1014,13 +1014,13 @@
         “Wooden statue from the tomb of Ramesses I”**
 
         Links: The British Museum’s “[The Valley of the
-        Kings](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.1-VALLEYOFKINGS.pdf),”
+        Kings](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.1-VALLEYOFKINGS.pdf),”
         “[Faience shabti of Sety
-        I](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.1-FAIENCESHABTISETY.pdf),”
+        I](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.1-FAIENCESHABTISETY.pdf),”
         “[Gold earring of
-        Tawosret](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.1-GOLDEARRINGTAWOSRET.pdf),”
+        Tawosret](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.1-GOLDEARRINGTAWOSRET.pdf),”
         and “[Wooden statue from the tomb of
-        Ramesses I](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.1-WOODENSTATUETOMBRAMESSES.pdf)”
+        Ramesses I](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.1-WOODENSTATUETOMBRAMESSES.pdf)”
         (PDF)  
            
          Instructions: Please read the first article as an introduction
@@ -1076,9 +1076,9 @@
 
         Links: The British Museum’s “[Tutankhamun, King of Egypt
         (1336-1327
-        BC)](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.2-TUTANKHAMUN.pdf)”
+        BC)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.2-TUTANKHAMUN.pdf)”
         and “[Granite statue of Tutankhamun as a priest of
-        Hapy](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.3.2-GRANITESTATUTETUTANKHAMUN.pdf)”
+        Hapy](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.3.2-GRANITESTATUTETUTANKHAMUN.pdf)”
         (PDF)   
            
          Instructions: Please read the above two articles in their
@@ -1163,13 +1163,13 @@
         Amenhotep III and Queen Tiye”**
 
         Links:The British Museum’s “[Ancient Egypt: Amarna
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.4-ANCIENTEGYPTAMARNA.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.4-ANCIENTEGYPTAMARNA.pdf),”
         “[Tell el-Amarna (ancient Akhetaten,
-        Egypt)](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.4-TELLELAMARNA.pdf),”
+        Egypt)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.4-TELLELAMARNA.pdf),”
         “[Limestone stela with a seated figure of
-        Akhenaten](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.4-LIMESTONESTELAAKENATEN.pdf),”
+        Akhenaten](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.4-LIMESTONESTELAAKENATEN.pdf),”
         and “[Shrine stela of Amenhotep III and Queen
-        Tiye](http://www.saylor.org/site/wp-content/uploads/2012/01/1.7.4-SHRINESTELAAMENHOTEP.pdf)”
+        Tiye](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.7.4-SHRINESTELAAMENHOTEP.pdf)”
         (PDF)   
            
          Instructions: Please read the above articles as an introduction
@@ -1216,15 +1216,15 @@
         “Shabako, Kushite king of Egypt (716-702 BC)"**
 
         Links: The British Museum’s “[Ancient Egypt: 3rd Intermediate
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTTHIRDINTERMED.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTTHIRDINTERMED.pdf),”
         “[Ancient Egypt: The Libyan
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTLIBYANPERIOD.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTLIBYANPERIOD.pdf),”
         “[Ancient Egypt: The Kushite
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTKUSHITEPERIOD.pdf),”“[Piye,
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTKUSHITEPERIOD.pdf),”“[Piye,
         Kushite king of Egypt (747-716
-        BC)](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-PIYEKUSHITEKING.pdf),”
+        BC)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-PIYEKUSHITEKING.pdf),”
         and “[Shabako, Kushite king of Egypt (716-702
-        BC)](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-SHABAKOKUSHITEKING.pdf)”
+        BC)](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-SHABAKOKUSHITEKING.pdf)”
         (PDF)   
            
          Instructions: Please read these articles as an introduction to
@@ -1253,15 +1253,15 @@
         “Wooden Stela of Tjenetdiashakhet”**
 
         Links: The British Museum’s “[Mud Shabti
-        Figures](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-MUDSHABTIFIGURES.pdf),”
+        Figures](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-MUDSHABTIFIGURES.pdf),”
         “[Textiles with the Name of King
-        Piye](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-TEXTILEWITHNAMESOFKINGPIYE.pdf),”
+        Piye](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-TEXTILEWITHNAMESOFKINGPIYE.pdf),”
         “[Granite Shabti of King
-        Taharqa](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-GRANITESHABTIKINGTAHARQA.pdf),”
+        Taharqa](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-GRANITESHABTIKINGTAHARQA.pdf),”
         “[Bronze Door Hinge Bearing Names of God's Wives of
-        Amun](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-BRONZEHINGEGOD.pdf),”
+        Amun](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-BRONZEHINGEGOD.pdf),”
         and “[Wooden Stela of
-        Tjenetdiashakhet](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-WOODENSTELATJENETDIASH.pdf)”
+        Tjenetdiashakhet](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-WOODENSTELATJENETDIASH.pdf)”
         (PDF)   
            
          Instructions: Please read these articles as an introduction to
@@ -1290,15 +1290,15 @@
 
         Links: The British Museum’s “[Granite Statue of Amun in the Form
         of a Ram Protecting King
-        Taharqa](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-GRANITESTATUEAMUNRAMKING.pdf),”
+        Taharqa](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-GRANITESTATUEAMUNRAMKING.pdf),”
         “[Painted Wooden Canopic
-        Jars](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-PAINTEDWOODENCANOPICJARS.pdf),”
+        Jars](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-PAINTEDWOODENCANOPICJARS.pdf),”
         “[Quartzite Statue of
-        Peshuper](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-QUARTZITESTATUEPESHUPER.pdf),”
+        Peshuper](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-QUARTZITESTATUEPESHUPER.pdf),”
         “[The Shabako
-        Stone](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-SHABAKOSTONE.pdf),”
+        Stone](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-SHABAKOSTONE.pdf),”
         and “[Sphinx of
-        Taharqo](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-SPHINXOFTAHARQO.pdf)”
+        Taharqo](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-SPHINXOFTAHARQO.pdf)”
         (PDF)   
            
          Instructions: Please read these articles as an introduction to
@@ -1329,23 +1329,23 @@
         obelisks of Nectanebo II”**
 
         Links: The British Museum’s “[Ancient Egypt: The Late
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTLATEPERIOD.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTLATEPERIOD.pdf),”
         “[Ancient Egypt: The Persian
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTPERSIANPERIOD.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-ANCIENTEGYPTPERSIANPERIOD.pdf),”
         “[Stela fragment of
-        Horiraa](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-STELAFRAGMENTHORIRAA.pdf),”
+        Horiraa](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-STELAFRAGMENTHORIRAA.pdf),”
         “[Bronze statue of
-        Khonsuirdis](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-BRONZESTATUEKHONSUIRDIS.pdf),”
+        Khonsuirdis](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-BRONZESTATUEKHONSUIRDIS.pdf),”
         “[Kneeling statue of Wahibre offering a
-        shrine](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-KNEELINGSTATUEWAHIBRE.pdf),”
+        shrine](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-KNEELINGSTATUEWAHIBRE.pdf),”
         “[Funerary chest of
-        Irthorru](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-FUNERARYCHEST.pdf),”
+        Irthorru](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-FUNERARYCHEST.pdf),”
         “[Aegis of
-        Isis](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-AEGISOFISIS.pdf),”
+        Isis](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-AEGISOFISIS.pdf),”
         “[Bronze figure of
-        Harpokrates](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-BRONZEFIGUREHARPOKRATES.pdf),”
+        Harpokrates](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-BRONZEFIGUREHARPOKRATES.pdf),”
         and “[Black siltstone obelisks of Nectanebo
-        II](http://www.saylor.org/site/wp-content/uploads/2012/01/1.8-BLACKSILTSTONEOBELISKS.pdf)”
+        II](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.8-BLACKSILTSTONEOBELISKS.pdf)”
         (PDF)  
            
          Instructions: Please read these articles as an introduction to
@@ -1407,29 +1407,29 @@
         Taimhotep,” “Stela of Neswy,” “The Rosetta Stone,” and “Mummy**
 
         Links: The British Museum’s “[Ancient Egypt: The Ptolemaic
-        Period](http://www.saylor.org/site/wp-content/uploads/2011/09/Ancient-Egypt-The-Ptolemaic-Period_1.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Ancient-Egypt-The-Ptolemaic-Period_1.pdf),”
         “[A ‘Queen’s
-        Vase](http://www.saylor.org/site/wp-content/uploads/2011/09/A-Queens-Vase_1.pdf),’”
+        Vase](https://resources.saylor.org/archived/wp-content/uploads/2011/09/A-Queens-Vase_1.pdf),’”
         “[Limestone Statue of a Female Worshipper Playing a
-        Lyre](http://www.saylor.org/site/wp-content/uploads/2011/09/Limestone-statue-of-a-female-worshipper-playing-a-lyre_1.pdf),”
+        Lyre](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Limestone-statue-of-a-female-worshipper-playing-a-lyre_1.pdf),”
         “[Gold Octadrachm of
-        Ptolemy II](http://www.saylor.org/site/wp-content/uploads/2012/11/Gold-octadrachm-of-Ptolemy.pdf),”
+        Ptolemy II](https://resources.saylor.org/archived/wp-content/uploads/2012/11/Gold-octadrachm-of-Ptolemy.pdf),”
         “[Marble Portrait of Alexander the
-        Great](http://www.saylor.org/site/wp-content/uploads/2011/09/Marble-portrait-of-Alexander-the-Great.pdf),”
+        Great](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Marble-portrait-of-Alexander-the-Great.pdf),”
         “[Outer Coffin of the Priest
-        Hornedjitef](http://www.saylor.org/site/wp-content/uploads/2011/09/Outer-coffin-of-the-priest-Hornedjitef_1.pdf),”
+        Hornedjitef](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Outer-coffin-of-the-priest-Hornedjitef_1.pdf),”
         “[Hypocephalus of the Temple Musician
-        Neshorpakhered](http://www.saylor.org/site/wp-content/uploads/2011/09/Hypocephalus-of-the-temple-musician-Neshorpakhered_1.pdf),”
+        Neshorpakhered](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Hypocephalus-of-the-temple-musician-Neshorpakhered_1.pdf),”
         “[Granite Head of a Bald
-        Man](http://www.saylor.org/site/wp-content/uploads/2011/09/Granite-head-of-a-bald-man_1.pdf),”
+        Man](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Granite-head-of-a-bald-man_1.pdf),”
         “[Stela of
-        Taimhotep](http://www.saylor.org/site/wp-content/uploads/2011/09/Stela-of-Taimhotep_1.pdf),”
+        Taimhotep](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Stela-of-Taimhotep_1.pdf),”
         “[Stela of
-        Neswy](http://www.saylor.org/site/wp-content/uploads/2011/09/Stela-of-Neswy_1.pdf),”
+        Neswy](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Stela-of-Neswy_1.pdf),”
         “[The Rosetta
-        Stone](http://www.saylor.org/site/wp-content/uploads/2011/09/The-Rosetta-Stone_1.pdf),”
+        Stone](https://resources.saylor.org/archived/wp-content/uploads/2011/09/The-Rosetta-Stone_1.pdf),”
         and “[Mummy Mask of
-        Hornedjitef](http://www.saylor.org/site/wp-content/uploads/2011/09/Mummy-mask-of-Hornedjitef_1.pdf)”
+        Hornedjitef](https://resources.saylor.org/archived/wp-content/uploads/2011/09/Mummy-mask-of-Hornedjitef_1.pdf)”
         (All PDF)  
            
          Instructions: Read these webpages as an introduction to the art
@@ -1471,23 +1471,23 @@
         “Textile with Erotes figures in a boat”**
 
         Links: The British Museum’s “[Ancient Egypt: The Roman
-        Period](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-ANCIENTEGYPTROMANPERIOD.pdf),”
+        Period](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-ANCIENTEGYPTROMANPERIOD.pdf),”
         “[The family of Soter, Archon of
-        Thebes](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-FAMILYOFSOTERARCHONTHEBES.pdf),”
+        Thebes](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-FAMILYOFSOTERARCHONTHEBES.pdf),”
         “[Lid of the coffin of
-        Soter](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-LIDOFCOFFINOFSOTER.pdf),”
+        Soter](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-LIDOFCOFFINOFSOTER.pdf),”
         “[Coffin of
-        Cleopatra](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-COFFINCLEOPATRA.pdf),”
+        Cleopatra](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-COFFINCLEOPATRA.pdf),”
         “[Mummy of Cleopatra from
-        Thebes](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-MUMMYCLEOPATRATHEBES.pdf),”
+        Thebes](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-MUMMYCLEOPATRATHEBES.pdf),”
         “[Mask of a
-        woman](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-MASKOFWOMAN.pdf),”
+        woman](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-MASKOFWOMAN.pdf),”
         “[Mummy Portrait of a
-        Man](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-MUMMYPORTRAITMAN.pdf),”
+        Man](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-MUMMYPORTRAITMAN.pdf),”
         “[Limestone head of a woman resembling Cleopatra
-        VII](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-LIMESTONEHEADOFWOMANCLEOPATRA.pdf),”
+        VII](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-LIMESTONEHEADOFWOMANCLEOPATRA.pdf),”
         and “[Textile with Erotes figures in a
-        boat](http://www.saylor.org/site/wp-content/uploads/2012/01/1.9.1-TEXTILEEROTESFIGURESBOAT.pdf)”
+        boat](https://resources.saylor.org/archived/wp-content/uploads/2012/01/1.9.1-TEXTILEEROTESFIGURESBOAT.pdf)”
         (PDF)   
            
          Instructions: Please read these articles as an introduction to
@@ -1523,7 +1523,7 @@
 
         Link: The British Museum: A.J.N.W Prag’s “[Proportion and
         Personality in the Fayum
-        Portraits](http://www.saylor.org/site/wp-content/uploads/2011/09/3d-Proportion-and-personality.pdf)”
+        Portraits](https://resources.saylor.org/archived/wp-content/uploads/2011/09/3d-Proportion-and-personality.pdf)”
         (PDF)  
            
          Instructions: Read the entire article (7 pages with
